@@ -107,7 +107,7 @@ If you do have some days to spare, you may want to visit a bit of Greece outside
 
 ### Food and Fun
 
-For eating, drinking, and getting merry, ask us. In general you should know that:
+For eating, drinking, and getting merry, you should know the following.
 
 * Traditional Greek food is supposed to be very healthy, based exclusively on virgin olive oil. The best olive oil arguably comes from the south of the Peloponnese.
 * You can often substitute a lunch or dinner with a snack you will eat on the way. Two tasty food types are pies and *souvlaki*. Pies come filled with cheese (*tyropita*), spinach (*spanakopita*), a sausage (*loukanikopita*), or other more exotic ingredients. Souvlaki, literally is a small spit. This is used for grilling small pre-cut meat pieces. You can order these plain (*kalamaki*); 2-3 of them and some fried potatoes can make a nice lunch. Alternatively, you can buy these wrapped in a fried patty (*pita*), which is also filled with tomatoes, fried potatoes, *tzatziki* (youghurt with garlic). One or two such *pita-souvlaki* can satisfy your hunger. Finally, you can ask the pita to be filled with *gyros*: meat pieces gradually roasted on a lateral spit and cut alongside it.

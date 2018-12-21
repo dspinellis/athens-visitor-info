@@ -84,7 +84,7 @@ All major rental agencies have offices in Athens, and there are many local compa
 
 There are plenty of things to do and see in Athens; sightseeing alone will fill several days, the night life is vibrant, there are hundreds of cinemas and theatres, and there seems to be a restaurant and coffee shop around every corner. Some starting points:
 
-* The [Acropolis](http://en.wikipedia.org/wiki/Acropolis).
+* The [Acropolis](http://en.wikipedia.org/wiki/Acropolis) and the outstanding [Acropolis Museum](https://en.wikipedia.org/wiki/Acropolis_Museum), which was  ranked 8th in the TripAdvisor's Travellers Choice Awards of the 25 Best Museums in the world for 2017.
 * The walk around Acropolis and the old city. It is possible to walk around Acropolis and the old city (Plaka), using a network of pedestrian ways. This can be a very nice experience, even serene if you do it in the dusk. It will take a few hours for the full walk.
 * The [National Archaeological Museum](http://en.wikipedia.org/wiki/National_Archaeological_Museum_of_Athens). The biggest collection of Greek Antiquities anywhere in the world. It is also worth visiting to get a close glimpse of the [Antikythera mechanism](http://en.wikipedia.org/wiki/Antikythera_mechanism).
 * The [Museum of Cycladic Art](http://www.cycladic.gr/). Art from the Cyclades, the islands in the middle of the Aegean Sea, dating a long time before the classical period. A modern, well designed museum, bang in the city centre. Cycladic art is abstract, like modern art in many ways.

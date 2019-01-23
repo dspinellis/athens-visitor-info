@@ -91,6 +91,9 @@ There are plenty of things to do and see in Athens; sightseeing alone will fill 
 * The [Benaki Museum](http://www.benaki.gr/). An eclectic collection of Greek art, near the Museum of Cycladic Art. Its roof restaurant is one of the nicest settings to have dinner in Athens.
 * The [Byzantine Museum](http://www.byzantinemuseum.gr/). The Byzantine Empire is the latest fashion in American and British history departments. The Byzantine Museum has a good collection, it is near the Museum of Cycladic Art and the Benaki Museum, and is housed on a fine example of byzantine architecture (contemporary).
 * [Museum of Popular Musical Instruments](http://www.greece-museums.com/museum/46/). This is in the old part of the city, and will give you an idea of traditional music styles and history.
+* [Herakleidon Museum: Science, Art, & Mathematics](https://herakleidon-art.gr/en-us/) You might be interested to see there the forty  prints of
+aurits Cornelis Escher (1898-1972). Verify that they will be on display
+when you visit, or see whether some other of its exhibitions interests you.
 
 ### Outside Athens
 

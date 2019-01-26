@@ -94,6 +94,7 @@ There are plenty of things to do and see in Athens; sightseeing alone will fill 
 * [Herakleidon Museum: Science, Art, & Mathematics](https://herakleidon-art.gr/en-us/) You might be interested to see there the forty  prints of
 aurits Cornelis Escher (1898-1972). Verify that they will be on display
 when you visit, or see whether some other of its exhibitions interests you.
+* [SNFCC](https://www.snfcc.org/) Stavros Niarchos Foundation Cultural Center is one of the main attractions in Athens. It's a public space, where everyone has free access and can participate in a multitude of cultural, educational, athletic, environmental and recreational activities and events. It includes the Greek National Opera, the National Library of Greece as well as the Stavros Niarchos Park, one of the largest green areas in Athens, covering 21 hectares.
 
 ### Outside Athens
 
@@ -150,4 +151,3 @@ For eating, drinking, and getting merry, you should know the following.
 * Apostolos Doxiadis. [Uncle Petros and Goldbach's Conjecture](http://www.amazon.com/dp/1582340676/?tag=dds-20).
 * Stratis Tsirkas, [Drifting Cities](http://www.amazon.com/Drifting-trilogy-Tsirkas-Translated-Cicellis/dp/B000VZZ8AQ/?tag=pilambda-20). (Hard to find, but magisterial.)
 * See also the related [Amazon's popular items.](http://www.amazon.com/gp/bestsellers/books/16961/ref=pd_zg_hrsr_b_1_4_last)
-

@@ -124,6 +124,7 @@ For eating, drinking, and getting merry, you should know the following.
 * The [Antikythera mechanism](http://en.wikipedia.org/wiki/Antikythera_mechanism) on display at the [National Archaeological Museum of Athens](http://en.wikipedia.org/wiki/National_Archaeological_Museum_of_Athens).
 * Ride the historic [Pelion's little train](http://www.i-politismos.gr/train_eng.html) from Lechonia to Milies and back. (See this [YouTube video](http://www.youtube.com/watch?v=_FFXPyVspKY&feature=related)).
 * The [Hellenic IT Museum](https://elmp.gr/en/home_en/), a small (single large room) museum with lovingly curated exhibits, mainly from the home computer era.  Includes  several historically important artefacts, such as early Apple and IBM PCs.
+* The [Greek Arcade Museum](https://greekarcademuseum.org/en/), featuring several rate and popular 20th century arcade consoles.
 * [Technopolis - Gazi](http://en.wikipedia.org/wiki/Gazi,_Athens). This is a preserved historic [coal gas](http://en.wikipedia.org/wiki/Town_gas) factory. Also located here is a small exhibition of radio technology.
 * The [War Museum](http://www.in.gr/ath/museum/article514.asp), situated next to the Byzantine Museum. This was founded by the [1967-1974 military junta](http://en.wikipedia.org/wiki/Greek_military_junta_of_1967-1974) to preserve and showcase Greece's military history. Its continued existence is a disgrace, but a nerd might find the aging fighter aircraft in its entrance mildly interesting.
 

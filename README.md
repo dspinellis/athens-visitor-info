@@ -90,11 +90,15 @@ There are plenty of things to do and see in Athens; sightseeing alone will fill 
 * The [Museum of Cycladic Art](http://www.cycladic.gr/). Art from the Cyclades, the islands in the middle of the Aegean Sea, dating a long time before the classical period. A modern, well designed museum, bang in the city centre. Cycladic art is abstract, like modern art in many ways.
 * The [Benaki Museum](http://www.benaki.gr/). An eclectic collection of Greek art, near the Museum of Cycladic Art. Its roof restaurant is one of the nicest settings to have dinner in Athens.
 * The [Byzantine Museum](http://www.byzantinemuseum.gr/). The Byzantine Empire is the latest fashion in American and British history departments. The Byzantine Museum has a good collection, it is near the Museum of Cycladic Art and the Benaki Museum, and is housed on a fine example of byzantine architecture (contemporary).
+ * The [National Gallery](https://www.nationalgallery.gr/en/) and the [National Museum of Contemporary Art Athens](https://www.emst.gr/en) display works of key Greek historical and contemporary artists.
+ * The [Basil and Elise Goulandris Foundation](https://goulandris.gr/en/visit/be-athens) houses a pocket museum providing you in just a couple of hours compressed access to an amazingly comprehensive collection of internationally renowned modern artists.
+* If you're a Maria Callas or opera aficionado consider visiting the [Maria Callas Museum](https://mariacallasmuseum.gr/en/).
 * [Museum of Popular Musical Instruments](http://www.greece-museums.com/museum/46/). This is in the old part of the city, and will give you an idea of traditional music styles and history.
 * [Herakleidon Museum: Science, Art, & Mathematics](https://herakleidon-art.gr/en-us/) You might be interested to see there the forty  prints of
 aurits Cornelis Escher (1898-1972). Verify that they will be on display
 when you visit, or see whether some other of its exhibitions interests you.
 * [SNFCC](https://www.snfcc.org/) Stavros Niarchos Foundation Cultural Center is one of the main attractions in Athens. It's a public space, where everyone has free access and can participate in a multitude of cultural, educational, athletic, environmental and recreational activities and events. It includes the Greek National Opera, the National Library of Greece as well as the Stavros Niarchos Park, one of the largest green areas in Athens, covering 21 hectares.
+
 
 ### Outside Athens
 
